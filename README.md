@@ -1,1 +1,1 @@
-omo no be small at all
+omo no be small
